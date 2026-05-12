@@ -64,7 +64,7 @@ Mythri-Farm/
 
 ## Contact
 
-- **WhatsApp:** [+971 55 690 9955](https://wa.me/971556909955)
-- **Call:** +971 55 690 9955
+- **WhatsApp:** [+971 55 *** ****](https://wa.me/97155*******)
+- **Call:** +971 55 *** ****
 - **Location:** Near Ras Al Khaimah Airport, UAE
 - **Languages:** English · Hindi · Urdu · Arabic
